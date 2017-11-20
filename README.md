@@ -1,0 +1,1 @@
+# easybox904-bootanimation
